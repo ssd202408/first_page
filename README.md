@@ -7,3 +7,5 @@
 [ブルースカイ](https://bsky.app/profile/172cm172cm.bsky.social/post/3lbwafxppik2y)
 
 [X_Twitter](https://x.com/172cm172cm2/status/1857743767442436477/photo/1)
+
+[note_(web_mini_blog_contest_etc)](https://note.com/172cm172cm172cm/)
