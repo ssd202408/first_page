@@ -1,4 +1,4 @@
-[Amazon欲しいものリスト](https://www.amazon.co.jp/hz/wishlist/ls/3H74LQU4VUDZ7?type=wishlist&filter=all&sort=priority&viewType=list)
+★ [Amazon欲しいものリスト](https://www.amazon.co.jp/hz/wishlist/ls/14CXV21QFC6C8?type=wishlist&filter=unpurchased&sort=priority&viewType=list)
 
 [no＋e_](https://note.com/172cm172cm172cm/)
 
