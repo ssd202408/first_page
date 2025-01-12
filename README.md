@@ -2,7 +2,10 @@
 
 [no＋e_](https://note.com/172cm172cm172cm/)
 
+![1736641068-EJY4K27atyVkNeirn908PSfo](https://github.com/user-attachments/assets/658c9348-1a4f-419d-a518-9b4884864f8f)
+
+
 [ブルースカイ](https://bsky.app/profile/172cm172cm.bsky.social/post/3lbwafxppik2y)
 
-[X_Twitter](https://x.com/172cm172cm2/status/1857743767442436477/photo/1)
+
 
